@@ -6,7 +6,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/sharwanisingh](https://github.com/sharwanisingh)
 
-- 📫 How to reach me **Sharwani9835@gmail.com**
+- 📫 How to reach me **Sharwani1662003@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
